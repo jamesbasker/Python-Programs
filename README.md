@@ -18,4 +18,4 @@ Practice the programs.
 
 ### Support or Contact
 
-Having trouble with Programs? or Learn more [contact](jamesxbasker@mail.com) and we’ll help you out.
+Having trouble with Programs? or Want to learn more [contact](http://learnerstop.com) and we’ll help you out.
